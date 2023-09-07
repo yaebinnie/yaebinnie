@@ -1,7 +1,7 @@
 ### Hi there 👋 I'm Yaebin (Leyla)
 - 🔭 I’m currently working on ... creative coding
 - 🌱 I’m currently learning ... Immersive Media Design
-- 📫 How to reach me: ... instagram
+- 📫 How to reach me: ... Instagram
 - 😄 Pronouns: ... she/her
 - ⚡ Fun fact: ... I hate coding <3
 
